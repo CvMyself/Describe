@@ -10,4 +10,4 @@ Phone Number: 0913088216
 Facebook: [anhsondz](http://www.fb.com/socdownny)  
 Email: ngtson216@gmail.com  
   
-!(https://blog.payoneer.com/wp-content/uploads/2016/09/freelance-coder-847x361.png)
+![](https://blog.payoneer.com/wp-content/uploads/2016/09/freelance-coder-847x361.png)
