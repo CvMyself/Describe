@@ -7,5 +7,5 @@ Code of course: TI30 - 2017
 
 # Contact:  
 Phone Number: 0913088216  
-Facebook: [anhsondz](fb.com/socdownny)  
+Facebook: [anhsondz](http://www.fb.com/socdownny)  
 Email: ngtson216@gmail.com  
